@@ -1,2 +1,2 @@
 # Praise-Gen-Leaked
-ezzzz
+dumbass nigger
