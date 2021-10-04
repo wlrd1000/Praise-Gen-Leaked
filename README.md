@@ -1,4 +1,5 @@
 # Praise-Gen-Leaked
-its fake u dumb af looool
+Leaked by rod#1337
+Actual Working Discord Token Generator
 
-join praise: https://discord.gg/tQeGwZArBH
+Working HCaptcha Bypass, Discord Member Booster.
